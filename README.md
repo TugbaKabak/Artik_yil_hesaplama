@@ -1,0 +1,1 @@
+# Artik_yil_hesaplama
